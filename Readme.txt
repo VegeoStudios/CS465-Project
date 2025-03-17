@@ -1,4 +1,4 @@
-Inoformation Links
+Information Links
 
 Video Link:
   https://youtu.be/4CvuFBdyAwQ?si=i7p828D-ei5OV529
